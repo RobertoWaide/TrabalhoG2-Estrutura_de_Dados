@@ -1,1 +1,0 @@
-toma no cu roberto
